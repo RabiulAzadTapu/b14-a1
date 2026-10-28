@@ -1,0 +1,1 @@
+Read the DevConf 2026 Landing Page.png file and give me a section that is comaptible in the 'SOmething Missing?' section.
